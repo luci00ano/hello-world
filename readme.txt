@@ -1,3 +1,0 @@
-Hund
-pilz
-ja
